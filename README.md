@@ -1,7 +1,7 @@
 - 👋 Hi, I’m @rps20088
 - 👀 I’m interested in BLACK HAT HACKING
-- 🌱 I’m currently learning 
-- 📫 How to reach me: MY TELEGRAM USERNAME-@RPSDEALS
+- 🌱 I’m currently learning CS
+- 📫 YOU CAN CONTACT ME AT TG, TELEGRAM USERNAME-@RPSDEALS
 - 😄 Pronouns:HE/HIM
 
 <!---
